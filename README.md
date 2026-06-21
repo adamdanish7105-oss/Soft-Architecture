@@ -4,6 +4,9 @@ FINAL REPORT G15
 GROUP PROPOSAL 2
 [G15_PROJECT PROPOSAL_2.pdf](https://github.com/user-attachments/files/29171197/G15_PROJECT.PROPOSAL_2.pdf)
 
+GROUP PROPOSAL 1
+[G15_Project Proposal (1).pdf](https://github.com/user-attachments/files/29171271/G15_Project.Proposal.1.pdf)
+
 MUHAMMAD RADILAN BIN YAAKUB (S75736)
 [INDIVIDUAL LOGBOOK S75736.pdf](https://github.com/user-attachments/files/29171199/INDIVIDUAL.LOGBOOK.S75736.pdf)
 
